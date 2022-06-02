@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Oleg
+- 👀 I’m interested in  how and like who i need to learning  this code
+- 🌱 I’m currently learning how red -purple kommunist may to stay here 
+- 💞️ I’m looking to collaborate on next door in my life and looking real friend(s)
+- 📫 How to reach me? okay,i tell where i live: 4 days you must go to north,after that, please dont "Не сворачивай с тропы" - only one road here thats why yougo to red house in the forest
